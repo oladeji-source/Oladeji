@@ -1,3 +1,4 @@
+![IMG-20250608-WA0032](https://github.com/user-attachments/assets/09b68ce1-3d44-4c10-85c1-937a20ac51cc)
 Visionary's Dream
 With mind aflame and heart aglow,
 I chase the dreams that others know.
